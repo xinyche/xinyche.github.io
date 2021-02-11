@@ -45,3 +45,18 @@
 >For even as He loves the arrow that flies,
 
 >So He loves the bow that is stable.
+
+
+
+
+>知识改变命运
+
+>并不是学历改变命运
+
+>它是学识，见识和胆识的综合体
+
+>它是获取美的能力
+
+>也是感受生命和生活的能力
+
+
