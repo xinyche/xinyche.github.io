@@ -7,7 +7,10 @@
 >愿你时刻保持悦己之心！
 
 >Be yourself!
-
+  
+  
+  
+  
 
 
 # Words to Us:
@@ -45,10 +48,10 @@
 >For even as He loves the arrow that flies,
 
 >So He loves the bow that is stable.
->
->
->
->
+<br>
+<br>
+<br>
+<br>
 >知识改变命运
 
 >并不是学历改变命运
