@@ -10,6 +10,7 @@
 <br>  
 <br>  
 <br>
+
 # Words to Us:
 
 >Your children are not your children.
@@ -51,9 +52,15 @@
 <br>
 
 >知识改变命运
+
 >并不是学历改变命运
+
 >它是学识，见识和胆识的综合体
+
 >它是获取美的能力
+
 >也是感受生命和生活的能力
+
+
 
 
