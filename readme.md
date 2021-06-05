@@ -7,6 +7,8 @@
 >愿你时刻保持悦己之心！
 
 >Be yourself!
+
+>When you know, you know!
 <br>  
 <br>  
 <br>
