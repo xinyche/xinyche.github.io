@@ -63,6 +63,8 @@ So He loves the bow that is stable.
 
 也是感受生命和生活的能力
 
+悦纳自己，是一生的旅程
+
 
 
 
