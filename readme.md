@@ -9,6 +9,8 @@
 Be yourself!
 
 When you know, you know!
+
+Gradually, then suddenly!
 <br>  
 <br>  
 <br>
