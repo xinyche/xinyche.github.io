@@ -6,6 +6,8 @@
 
 愿你时刻保持悦己之心！
 
+允许一切，如其所是
+
 Be yourself!
 
 When you know, you know!
