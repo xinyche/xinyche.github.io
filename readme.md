@@ -69,6 +69,7 @@ So He loves the bow that is stable.
 
 悦纳自己，是一生的旅程
 
+加油！
 
 
 
